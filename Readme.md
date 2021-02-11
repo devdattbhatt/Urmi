@@ -38,7 +38,7 @@ To achieve any gole in life you need to have two main things GOOD KARMA and BLES
 I am taking care of good karma ,now providing blessing is your responsibility .
 
 We all have only one life , 
-I wish every soul a life with dignity , truth , happiness and family .
+I wish every soul a life with good helth , family , power , respect and prosperity.
 
 
 - Devdatt Bhatt
