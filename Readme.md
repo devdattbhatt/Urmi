@@ -15,6 +15,7 @@ Shaileshkumar Bhatt :- ( - 19 September,2013)
 And
 
 Every single mother who given birth , love , part of it self and stood by them till last breath,
+
 Every single father who fulfilled his every single duty ,
 
 Every single knowledge seeker and teacher who made human civilization possible ,
