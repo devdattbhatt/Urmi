@@ -37,23 +37,23 @@ This is given to every single human who will ever be born on earth. If you use t
 
 1 > If you have a sister, hand over 11$ or more to her .
 
-2 > If you have a loan on your name, pay 11$ or more extra .
+2 > If you have a loan on you, pay 11$ or more extra .
 
-3 > If you love your parents, hand over 11$ or more to them .
+3 > If your parents ever cared for you, hand over 11$ or more to them .
 
 4 > If any relative ever helped you in need , find some family members in need and send them 11$ or more .
 
-5 > If you ever enjoyed any service from any country, donate 11$ or more to your state .
+5 > If you ever enjoyed any service from your state, donate 11$ or more to your state .
 
 6 > If you are ever protected by your country, donate 11$ or more to your country .
 
-7 > If you ever felt that god exists find a person who really needs help and help them .
+7 > we came empty handed and we go empty handed from earth,however  while on earth if you ever got help please feel free to help others .
 
 
 What about me ... ??? hmmmmmmm
 -----------------------------------
 
-To achieve any goal in life you need to have two main things GOOD KARMA and BLESSING ,
+To achieve any goal in life anyone need to have two main things "GOOD KARMA" and "BLESSING" ,
 
 I am taking care of good karma ,now providing blessing is your responsibility .
 
@@ -61,5 +61,4 @@ We all have only one life and death is only truth of our life.
 
 I wish every soul a life with good health ,happy family ,mighty power , respect and unlimited fortune.
 
-- Devdatt Bhatt
-
+- faith and hope
