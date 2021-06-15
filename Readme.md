@@ -5,9 +5,11 @@ Urmi an "you happy me happy" license
 In the name , memory and honor of
 
 Dilipkumar Bhatt :- ( - 06 March,1999)
-![WhatsApp Image 2021-02-27 at 6 40 46 PM](https://user-images.githubusercontent.com/17675389/121989482-d7e9ce00-cdb9-11eb-9b4e-1daf11b4f820.jpeg)
+
+<img src="https://user-images.githubusercontent.com/17675389/121989482-d7e9ce00-cdb9-11eb-9b4e-1daf11b4f820.jpeg" alt="drawing" width="200" hight="200"/>
 
 Urmi Bhatt :- (23 August,1992 - 22 April,2012)
+
 <img src="https://user-images.githubusercontent.com/17675389/121990768-f8b32300-cdbb-11eb-8214-a5ed89ae3d63.jpg" alt="drawing" width="200" hight="200"/>
 
 
