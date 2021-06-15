@@ -13,9 +13,9 @@ Urmi Bhatt :- (23 August,1992 - 22 April,2012)
 <img src="https://user-images.githubusercontent.com/17675389/121990768-f8b32300-cdbb-11eb-8214-a5ed89ae3d63.jpg" alt="drawing" width="200" hight="200"/>
 
 
-
 Shaileshkumar Bhatt :- ( - 19 September,2013)
 
+<img src="https://user-images.githubusercontent.com/17675389/121991093-99a1de00-cdbc-11eb-8f04-c8d2ccec7e4b.jpeg" alt="drawing" width="200" hight="200"/>
 
 And
 
