@@ -15,7 +15,7 @@ Urmi Bhatt :- (23 August,1992 - 22 April,2012)
 
 Shaileshkumar N. Bhatt :- ( - 19 September,2013)
 
-<img src="https://user-images.githubusercontent.com/17675389/121991093-99a1de00-cdbc-11eb-8f04-c8d2ccec7e4b.jpeg" alt="drawing" width="200" hight="200"/>
+<img src="https://user-images.githubusercontent.com/17675389/129624203-37c21bde-5f68-4cb6-8959-23936569dc58.jpg" alt="drawing" width="200" hight="200"/>
 
 And
 
@@ -38,7 +38,7 @@ Every single human who ever walked and contributed to constructive work of human
 Every single Power ever existed in universe who done good 
 
 
-This is given to every single human , goverment , ngo , educational institutes .
+This is given to every single human , goverment , NGO , educational institutes .
 
 If you use things under this licence you have to spend 11$ or more (US dollar) for one of the following in ascending order.
 
