@@ -77,3 +77,10 @@ We all have only one life and death is only truth of our life.
 I wish every soul a life with good health ,happy family ,mighty power , highest respect and unlimited fortune.
 
 - faith and hope
+
+
+
+Notice :- We do not accept any kind of donation in any way in any manner , in any case anything received by us that will not considered under `Urmi You Happy Me Happy Licence`.
+
+If you don`t spend 11$ or more after seeing this email god will transfer all of your good KARMA to my account so don`t forgot to spend 11$ or more according to licence.
+
