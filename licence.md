@@ -8,7 +8,7 @@
 - Use the work freely  
 - Study and learn from it  
 - Share it with others  
-- Use it for personal, educational, governmental, NGO, or institutional purposes  
+- Use it by individuals , governmentals , NGO and institutional  
 
 This license is granted worldwide, free of charge, and without exclusivity.
 
@@ -61,10 +61,64 @@ The author shall not be held liable for any damages arising from its use.
 > We come empty-handed, and we leave empty-handed.
 
 ---
+## Commercial Use and Revenue-Generating Activities
+
+### Definition of Commercial Use
+
+“Commercial Use” means any use of the Work that directly or indirectly:
+
+- Generates revenue, profit, fees, or consideration of any kind  
+- Supports a paid product, service, subscription, contract, or offering  
+- Is used by a for-profit entity in the course of business operations  
+- Is deployed in production systems, SaaS platforms, hosted services, or client deliverables  
+
+---
+
+### Conditional Permission for Commercial Use
+
+Commercial Use of the Work is **permitted only if** the user fully complies with the **Ethical Contribution Requirement** defined in this License.
+
+The Ethical Contribution Requirement constitutes valid **legal consideration** and a **material condition** for Commercial Use.
+
+---
+
+### Prohibited Commercial Exploitation
+
+Without full compliance with this License, the following activities are strictly prohibited:
+
+- Selling or reselling the Work  
+- Licensing or sublicensing the Work  
+- Leasing or renting the Work  
+- Bundling the Work with paid products or services  
+- Monetizing access to the Work or its derivatives  
+
+---
+
+### Breach and Termination
+
+Failure to comply with the Ethical Contribution Requirement shall constitute a **material breach** of this License.
+
+Upon such breach:
+- All rights granted under this License **automatically terminate**
+- No prior notice is required
+
+---
+
+### No Waiver
+
+Failure by the licensor to enforce any provision of this section shall not be construed as a waiver of any rights.
+
+---
+
+### Governing Law and Enforcement
+
+This section shall be governed by the laws of the user’s jurisdiction, or if unavailable, by the laws of India.
+
+Enforcement may occur through **contract law**, **procurement compliance**, or **applicable statutory remedies**.
+
 
 ## Final Notice
 
-- The author does **not** accept donations in any form  
 - This license exists to promote **good karma, responsibility, and humanity**
 
 **With faith and hope.**
