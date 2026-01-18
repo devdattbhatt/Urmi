@@ -70,17 +70,16 @@ What about me ... ??? hmmmmmmm
 
 To achieve any goal in life anyone need to have two main things "GOOD KARMA" and "BLESSINGS" ,
 
-I am taking care of good karma ,now providing blessing is your responsibility .
+I am taking care of good karma ,now providing blessing is gods responsibility .
 
-We all have only one life and death is only truth of our life.
+We all have only one life , death is only truth of our life.
 
 I wish every soul a life with good health ,happy family ,mighty power , highest respect and unlimited fortune.
 
-- faith and hope
+- With faith and hope
 
 
 
-Notice :- We do not accept any kind of donation in any way in any manner , in any case anything received by us that will not considered under `Urmi You Happy Me Happy Licence`.
+Notice :- We do not accept any kind of donation in any way in any manner ,
 
 If you dont spend 11$ or more after seeing this email god will transfer all of your good KARMA to my account so dont forgot to spend 11$ or more according to licence.
-
