@@ -4,20 +4,6 @@ Urmi an "you happy me happy" license
 
 In the name , memory and honor of
 
-Dilipkumar K. Bhatt :- ( - 06 March,1999)
-
-<img src="https://user-images.githubusercontent.com/17675389/121989482-d7e9ce00-cdb9-11eb-9b4e-1daf11b4f820.jpeg" alt="drawing" width="200" hight="200"/>
-
-Urmi Bhatt :- (23 August,1992 - 22 April,2012)
-
-<img src="https://user-images.githubusercontent.com/17675389/121990768-f8b32300-cdbb-11eb-8214-a5ed89ae3d63.jpg" alt="drawing" width="200" hight="200"/>
-
-
-Shaileshkumar N. Bhatt :- ( - 19 September,2013)
-
-<img src="https://user-images.githubusercontent.com/17675389/129624203-37c21bde-5f68-4cb6-8959-23936569dc58.jpg" alt="drawing" width="200" hight="200"/>
-
-And
 
 Every single mother who given birth , love , part of it self to their child ,
 
@@ -60,9 +46,10 @@ If you use things under this licence you have to spend 11$ or more (US dollar) f
 
 Distribution Rules
 ----------------------------------------------------------------------
-work under this licence can be obtained by any entity however disribution and consumption is limited to individual humans.
+work published under this licence can be obtained by any entity and licence can not .
 
-means view or used by individuals and no editing allowed.
+work published under this licence is permenent and only share able with same licene , selling ,leasing reselling or doing any thing else is illigal .
+
 
 
 What about me ... ??? hmmmmmmm
@@ -80,6 +67,6 @@ I wish every soul a life with good health ,happy family ,mighty power , highest 
 
 
 
-Notice :- We do not accept any kind of donation in any way in any manner ,
+Notice :- We do not accept any kind of donation in any way in any manner.
 
 If you dont spend 11$ or more after seeing this email god will transfer all of your good KARMA to my account so dont forgot to spend 11$ or more according to licence.
