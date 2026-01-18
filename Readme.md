@@ -46,7 +46,7 @@ If you use things under this licence you have to spend 11$ or more (US dollar) f
 
 Distribution Rules
 ----------------------------------------------------------------------
-work published under this licence can be obtained by any entity and licence can not .
+work published under this licence can be obtained by any entity .
 
 work published under this licence is permenent and only share able with same licene , selling ,leasing reselling or doing any thing else is illigal .
 
